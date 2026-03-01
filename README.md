@@ -1,3 +1,3 @@
-# HaochengWang.github.io
+# HaochengWang23.github.io
 
-https://HaochengWang.github.io
+https://haochengwang23.github.io/HaochengWang/
